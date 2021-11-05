@@ -1,1 +1,1 @@
-👉🏽 https://devalex.netlify.app/
+👉🏽 aleksamaletic.com
